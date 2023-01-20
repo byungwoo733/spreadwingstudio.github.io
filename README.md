@@ -3,6 +3,6 @@
 https://byungwoo733.github.io/spreadwingstudio.github.io/
 
 
-Tistory
+[Tistory] Spread Wing G Studio 
 
 https://spreadwing-gamestory.tistory.com/
